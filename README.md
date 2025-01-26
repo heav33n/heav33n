@@ -1,4 +1,4 @@
-## Hi, im rV4nxZ
+## Hi, erreing here!
 
-#### Im mostly a Python programmer, learning completly Python to specialize in it.
+#### Mostly a Python programmer in backend, nothing special. If you want to contact me, just send a message on [Twitter (X)](https://x.com/erreing) I guess.
 ###### **Be safe.**
